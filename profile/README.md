@@ -1,4 +1,4 @@
-## ASTLAN 💀
+## AZTLAN 💀
 
 <!--
 
